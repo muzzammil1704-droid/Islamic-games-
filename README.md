@@ -1,2 +1,0 @@
-# Islamic-games-
-Assalam alaikum
